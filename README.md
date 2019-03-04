@@ -1,1 +1,1 @@
-![App Gif](https://i.hizliresim.com/EmMab9.gif)
+![App Gif](https://media.giphy.com/media/1s3jqUJdMDeNvq8nwU/giphy.gif)
