@@ -1,1 +1,1 @@
-![Alt Text](https://i.hizliresim.com/EmMab9.gif)
+![App Gif](https://i.hizliresim.com/EmMab9.gif)
